@@ -1,0 +1,1 @@
+# modelowanie_cen_akcji_spolek
